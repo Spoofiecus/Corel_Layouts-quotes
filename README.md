@@ -1,0 +1,1 @@
+# Corel_Layouts-quotes
